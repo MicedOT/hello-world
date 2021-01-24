@@ -1,3 +1,0 @@
-yeah
-hello
-hello
